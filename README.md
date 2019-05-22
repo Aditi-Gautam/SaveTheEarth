@@ -1,6 +1,8 @@
 # SaveTheEarth
 ## CAPTAIN MARVEL
 
+! [Captain Marvel](https://image.tmdb.org/t/p/original/449tpF4xtwAC78dakS2XpDp7io5.jpg)
+
 **You are Carol Danvers. You were the woman on that black 
 box risking her life to do the right thing. My best friend. 
 Who supported me as a mother and a pilot when no one else 
@@ -10,7 +12,9 @@ you could shoot fire through your fists.**
 
 *-Maria Rambeau*
 
-This quote from Maria offers even more proof of all the ways 
+![Carol and Maria](https://media.gizmodo.co.uk/wp-content/uploads/2019/02/i5n483krkybprk9ufwsy.png)
+
+This quote from Maria offers even proof of all the ways 
 that Carol Danvers is the hero we need. Not only will she 
 throw herself on the fire when necessary, but she’ll also step
  up in all of the smaller ways that can mean even more to people
