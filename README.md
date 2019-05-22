@@ -20,11 +20,6 @@ throw herself on the fire when necessary, but she’ll also step
  up in all of the smaller ways that can mean even more to people
  who count on you. Even when there’s a lot less glory to be had.
 
-She’d been held back by her circumstances and everyone around 
-her, but when she shed all of that, she was able to achieve her
- full, amazing potential. There’s no end to what you can accomplish 
-when you realize that so much of what’s holding you back is just 
-in your head.
 
 
 **Captain Marvel possesses self-healing/regeneration powers, fires energy blast on her Enemies has cosmic awareness as Doctor Strange and could work in an unbeatable binary mode.** She came to work with Avengers in defeating Thanos. Her confidence in her intense and unbeatable powers were shown when she told Avengers that she is going to kill Thanos alone and they were defeated before because she wasn't with them. Her valour and glory brought an adrenaline rushin everyone's body when she fights with thanos on her own for the first time, Thanos was seen bit weakened. It would have been impossible for the Mad Titan to snap his fingers again if he would not have used power stones to Punch her. When everyone thought that she would not come back. Captain Marvel sustained the effect of the power stone and returned with no harm.
