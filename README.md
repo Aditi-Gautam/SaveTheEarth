@@ -15,10 +15,5 @@ throw herself on the fire when necessary, but she’ll also step
  up in all of the smaller ways that can mean even more to people
  who count on you. Even when there’s a lot less glory to be had.
 
-She’d been held back by her circumstances and everyone around 
-her, but when she shed all of that, she was able to achieve her
- full, amazing potential. There’s no end to what you can accomplish 
-when you realize that so much of what’s holding you back is just 
-in your head.
 
 
